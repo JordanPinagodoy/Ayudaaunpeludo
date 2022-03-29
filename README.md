@@ -1,0 +1,2 @@
+# Ayudaaunpeludo
+ejercicio 2
